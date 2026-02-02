@@ -20,7 +20,7 @@ Sua pele costuma variar entre tons de:
 
 Mesmo após banhos, é comum que uma leve película de poeira mineral permaneça sobre a pele.
 
-	Seus cabelos tendem ao escuro — preto, castanho profundo ou castanho mineral — muitas vezes mantidos curtos por praticidade. Entre trabalhadores subterrâneos, cabelos longos são raros.
+Seus cabelos tendem ao escuro — preto, castanho profundo ou castanho mineral — muitas vezes mantidos curtos por praticidade. Entre trabalhadores subterrâneos, cabelos longos são raros.
 
 Os olhos Dunnin costumam apresentar:
 

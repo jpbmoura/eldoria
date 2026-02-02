@@ -6,8 +6,6 @@ Com o tempo, tornou-se claro que apenas uma operação organizada poderia susten
 
 Assim nasceu a Caravana.
 
-![[Pasted image 20260201171606.png]]
-
 O que começou como uma união de poucos comerciantes tornou-se, ao longo das gerações, uma gigantesca caravana permanente — uma estrutura quase viva que cruza o deserto em ciclos constantes. Ornada com metais, sinos de navegação e marcas comerciais antigas, a Caravana Dourada não é apenas um comboio de transporte, mas um símbolo de sobrevivência econômica.
 
 Hoje, quando atravessa o deserto, a Caravana Dourada é vista como uma linha móvel de civilização: dezenas de veículos de carga, animais de tração resistentes, guardas mercenários, artesãos, cozinheiros e navegadores do deserto marchando juntos sob o sol implacável.

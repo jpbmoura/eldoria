@@ -12,7 +12,7 @@ Guiado pela Medida da Luz, Mazhi'pour instaurou uma nova ordem. Leis foram refor
 
 Hoje, Raaja é lembrado não apenas como um reino rico, mas como um reino **justo** — um lugar onde prosperidade e medida caminham lado a lado, e onde o legado da [[Hoste de Akarion]] permanece vivo em cada geração.
 
-![[Pasted image 20260131110259.png]]
+![[Pasted image 20260202175108.png]]
 
 ---
 ## Arquitetura e Visual de Raaja

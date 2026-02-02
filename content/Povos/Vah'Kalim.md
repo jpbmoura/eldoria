@@ -18,7 +18,7 @@ Como povo semi-nômade, as Vah’Kalim raramente permanecem em um único oásis 
 
 As **Vah’Kalim** são frequentemente descritas como a presença mais serena entre os povos de Ninn’ha. Há nelas uma aparência que mistura resistência do deserto com uma suavidade incomum — como se carregassem consigo a calma das águas que protegem.
 
-![[Pasted image 20260201174012.png]]
+![[Pasted image 20260202175737.png]]
 
 ---
 

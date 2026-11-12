@@ -7,7 +7,6 @@ Enquanto outros povos de [[Ninn'ha]] aprendem com vento e areia, os Dunnin apren
 ![[Pasted image 20260202184640.png]]
 
 ---
-
 ## Aparência Física
 
 Fisicamente, os **Dunnin** carregam marcas claras de uma vida entre pedra, poeira mineral e luz escassa.

@@ -123,3 +123,11 @@ Existe um temor silencioso entre os povos do deserto:
 
 Que ninguém realmente encontra os Andarilhos.  
 Talvez… as pessoas só os vejam quando já estão perto demais do mesmo caminho.
+
+---
+
+### Mais Andarilhos
+
+Desde o [[O Ak'nar Partido|Ak'nar Partido]], há cerca de vinte e cinco anos, os avistamentos aumentaram como nunca. Caravanas relatam dezenas de figuras por estação, e os [[Raajin]] já não conseguem registrar todos.
+
+Ninguém sabe ao certo o que os chama. Os nomes que cada povo dá ao destino deles estão em [[O Acúmulo]], e a lenda que os conduz está em [[Lenda da Caminhada da Luz]].

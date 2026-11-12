@@ -68,3 +68,13 @@ Adornos comuns incluem:
 - Cordões com pequenos frascos de água
 
 Algumas carregam pequenas marcas de tinta natural nos braços ou mãos, representando ciclos de proteção de oásis.
+
+---
+
+## A Sede
+
+As Vah'Kalim chamam a força do oeste de **A Sede**: a seca que bebe os oásis por baixo da terra.
+
+Para elas, o [[O Acúmulo|Acúmulo]] não é uma lenda distante. É algo que se mede em nascentes mais fracas e em manchas de [[Sede-Negra]] que aparecem onde antes havia vida. Sob a liderança de [[Nillu]], as Vah'Kalim criaram as primeiras práticas para conter a planta e mantêm vigilância permanente em [[Raaja'ru]].
+
+Elas oferecem água em silêncio aos [[Andarilhos da Luz Morta]]. Sabem que será recusada, mas acreditam que é o único gesto capaz de lembrar a alguém o que ainda lhe pertence.

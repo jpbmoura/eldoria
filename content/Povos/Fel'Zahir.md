@@ -98,3 +98,13 @@ Para eles, o deserto é **campo de prova**.
 E quem não passa… vira parte dele.
 
 > _“O deserto fere primeiro. Nós apenas aprendemos a ferir de volta. - Provérbio Fel'Zahir”_
+
+---
+
+### O Clã Renegado
+
+Cerca de quinze anos atrás, um clã Fel'Zahir liderado por [[Kesh Varun]] partiu para o oeste em busca de **O Que Toma**, o nome que eles dão ao [[O Acúmulo|Acúmulo]]. Os que voltaram já não eram Fel'Zahir: são o [[Ul'Kesh]], que saqueia para guardar e não para sobreviver.
+
+Os Fel'Zahir, liderados pelo temido [[Ruhk Tal'Zar]], caçam o Ul'Kesh à vista.
+
+> _“O Fel'fel fere, mas dá fruto. O Ul'Kesh só fere.”_

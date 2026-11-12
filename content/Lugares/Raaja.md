@@ -108,3 +108,19 @@ Visitantes frequentemente descrevem Raaja como:
 É uma cidade que transmite a sensação de que **tudo está exatamente onde deveria estar**.
 
 ![[Pasted image 20260201112625.png]]
+
+---
+
+## Raaja Hoje — Sob o Conselho
+
+Desde o [[O Ak'nar Partido|Ak'nar Partido]], Raaja não tem Voz. O reino é governado provisoriamente pelo [[Conselho da Balança]], formado por três Avaliadores, três Reguladores e a Cadeira Cega, que permanece vazia.
+
+A prosperidade construída desde Mazhi'pour não desapareceu em uma geração. Ainda assim, os mais velhos percebem sinais pequenos e constantes:
+
+- Famílias mercantis voltam a crescer além da medida
+- Julgamentos são adiados e redistribuições não acontecem
+- Dívidas de casas Raajin passaram às mãos da [[Kloh]], de [[Ren'Hun]]
+
+Às margens de [[Raaja'ru]], a palmeira seca de [[Tahvir Ansaal]] continua de pé entre as [[Palmeiras Anciãs]].
+
+> _“Deixar para a Cadeira Cega.”_ — expressão Raajin para algo que nunca será resolvido.

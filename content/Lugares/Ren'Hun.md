@@ -86,3 +86,17 @@ Ren’hun não vence pela guerra. Vence pelo tempo, pela influência e pela nego
 Hoje, a Hoste raramente envia **Reguladores**.
 
 Em vez disso, envia **Avaliadores** — clérigos que observam, aconselham e tentam inserir lentamente conceitos de Medida e Justiça na cultura Rennin: alguns escutam, alguns ignoram. alguns fingem concordar.
+
+---
+
+## Ren'Hun Avança
+
+Desde o [[O Ak'nar Partido|Ak'nar Partido]], há cerca de vinte e cinco anos, não existe _Voz de Akarion_ para enviar Reguladores, e o [[Conselho da Balança]] raramente reúne votos para agir.
+
+Ren'Hun percebeu isso antes de todos.
+
+- A [[Kloh]], sob [[Ottar Kloh]], comprou dívidas de dezenas de famílias de [[Raaja]]
+- A [[Runh]], sob [[Velis Runh]], passou a sangrar os bosques de [[Árvore Ambarina]] como nunca
+- A [[Traa]], sob [[Haldar Traa]], ampliou rotas que antes a Hoste vigiava
+
+As fortunas da Tríade crescem mais rápido do que qualquer cálculo explica. Os contadores mais velhos dizem, em voz baixa, que _“nenhuma fortuna cresce tão rápido sem alguém do outro lado da balança”_. Os Rennin chamam esse alguém de **O Credor**: [[O Acúmulo]].

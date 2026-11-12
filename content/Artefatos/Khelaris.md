@@ -18,3 +18,17 @@ Khelaris cega aquele que é digno de portar sua autoridade. Não como punição,
 A lança não escolhe heróis nem reis — escolhe necessidade. Ela surge quando o desequilíbrio atinge um ponto irreversível e desaparece quando a Medida é restaurada. Muitos acreditam que Khelaris jamais esteve verdadeiramente perdida; apenas aguardando.
 
 ![[Pasted image 20260131111816.png]]
+
+---
+
+## O Desaparecimento
+
+No [[O Ak'nar Partido|Ak'nar Partido]], quando o escolhido [[Tahvir Ansaal]] caiu morto com a mão sobre a haste, Khelaris emitiu uma luz breve e silenciosa e deixou de estar ali. Não caiu nem quebrou, e ninguém a levou.
+
+Há vinte e cinco anos ninguém a vê.
+
+- [[Os Pacientes]] acreditam que ela está **medindo** o mundo antes de escolher de novo, como fez com [[Mazhi'pour]].
+- [[A Mão Erguida]] acredita que a Hoste não pode depender de seu retorno.
+- Os Seguidores do Poente acreditam que ela foi **puxada** para o oeste, em direção ao [[O Acúmulo|Acúmulo]].
+
+As mesmas inscrições geométricas de sua haste foram reconhecidas dentro da [[Pedra de Gelo Eterno]] de Dun.

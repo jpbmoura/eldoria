@@ -170,3 +170,13 @@ Dentro da Caravana, existem regras absolutas:
 Entre os membros existe uma crença:
 
 > *“A Caravana não pertence a nós. Nós pertencemos ao caminho.”*
+
+---
+
+## Os Gorhul
+
+A Caravana não seria possível sem os [[Gorhul]], os répteis colossais de carga cujos cascos sustentam plataformas inteiras de minério, água e mercadorias. Os maiores carregam o próprio Alto Condutor.
+
+Hoje a Caravana é liderada por [[Brask Doln]], um Dunnin que começou como trabalhador da linha.
+
+> _“Gorhul não corre. Gorhul chega.”_ — Ditado dos condutores de animais

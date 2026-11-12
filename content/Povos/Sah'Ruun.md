@@ -86,3 +86,17 @@ Eles não o chamam de “Leão Solar”, nem de divindade da justiça.
 Entre eles, Akarion é muitas vezes referido apenas como:
 
 **“A Medida que Não Falha.”**
+
+---
+
+## A Boca do Poente
+
+Os Sah'Ruun chamam a força do oeste de **A Boca do Poente**: o lugar onde o vento para de soprar. Para um povo que vive escutando o vento, não existe lugar mais terrível.
+
+Eles não a temem como um inimigo. Tratam-na como um precipício: não se luta contra ele, apenas se evita a borda. Os acampamentos Sah'Ruun nunca são montados com a abertura voltada para o oeste.
+
+Os falcões [[Tiru]] se recusam a voar naquela direção. Os Sah'Ruun consideram isso resposta suficiente.
+
+O ancião conhecido apenas como [[O Sem-Palavra]] é, segundo dizem, o único vivo que chegou perto da Boca e voltou.
+
+> _“O vento oeste não sopra. Ele puxa.”_

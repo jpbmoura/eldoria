@@ -31,7 +31,7 @@ Entre os Raajin, existe o ditado:
 O **Ak’nar** ocorre sempre ao nascer do sol, geralmente em:
 
 - Grandes templos da Hoste, ou
-- Próximo ao oásis [[Raaja’ru]], ou
+- Próximo ao oásis [[Raaja'ru]], ou
 - Em locais considerados “equilibrados” entre natureza e civilização
 
 O ritual nunca ocorre em locais de excesso — como palácios luxuosos — nem em locais de extrema escassez.
@@ -107,3 +107,15 @@ Existem registros de que:
 - Tempestades cessam momentaneamente
 
 A Hoste nunca confirma esses relatos.
+
+---
+
+## O Ak'nar Partido
+
+O último Ak'nar falhou. Há cerca de vinte e cinco anos, às margens de [[Raaja'ru]], o Regulador [[Tahvir Ansaal]] tocou Khelaris e morreu antes de terminar a Primeira Palavra:
+
+> _“A balança não está vazia. Ela está sendo—”_
+
+Khelaris desapareceu no mesmo instante. Desde então, não houve outro Ak'nar.
+
+Ver: [[O Ak'nar Partido]].

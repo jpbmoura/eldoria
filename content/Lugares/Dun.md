@@ -87,3 +87,11 @@ Você veria:
 - Vapores frios saindo de túneis
 
 ![[Pasted image 20260201140819.png]]
+
+---
+
+### A Origem do Gelo
+
+Muitos acreditam que a pedra é um contrapeso de [[Akarion]]: onde havia sol demais, a Medida colocou o frio. As teorias, a função dos Guardiões dos Reservatórios e os sinais recentes estão em [[Pedra de Gelo Eterno]].
+
+Dentro de suas galerias crescem o [[Lume-de-Galeria]] e o [[Musgo-de-Gelo]], e nelas caça o [[Escorpião-de-Veio]].

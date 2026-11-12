@@ -25,3 +25,22 @@ A Voz é cega, assim como a própria divindade, e os membros da Hoste acreditam 
 Antes de sua morte, a Voz de Akarion escolhe, entre os membros da ordem, aquele que empunhará a lança e dará continuidade à missão ([[Ak'nar]]). No instante em que o escolhido toma posse de Khelaris, seus olhos tornam-se cegos à luz, e ele recebe a iluminação absoluta — passando a enxergar não com os olhos, mas com a própria medida do mundo.
 
 ![[Pasted image 20260130233917.png]]
+
+---
+
+## A Ausência
+
+Há cerca de vinte e cinco anos, o [[O Ak'nar Partido|Ak'nar Partido]] interrompeu a linha das Vozes. [[Tahvir Ansaal]], o Regulador escolhido por [[Ilhamar]], a Sétima Voz, morreu ao tocar [[Khelaris]], e a lança desapareceu.
+
+Pela primeira vez desde [[Mazhi'pour]], a Hoste não tem Voz.
+
+O vazio partiu a ordem em duas:
+
+- **[[Os Pacientes]]**, em sua maioria Avaliadores, acreditam que Khelaris está apenas aguardando e que nenhuma mão humana pode escolher a próxima Voz.
+- **[[A Mão Erguida]]**, em sua maioria Reguladores, acreditam que a Hoste não pode esperar por uma lança desaparecida e que precisa eleger uma Voz.
+
+Um grupo menor, os **Seguidores do Poente**, partiu para o oeste em busca de Khelaris. Poucos voltaram.
+
+Enquanto isso, [[Raaja]] é governada pelo [[Conselho da Balança]], onde a Cadeira Cega permanece vazia.
+
+> _“A Voz não morre. Mas pode ficar em silêncio.”_
